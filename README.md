@@ -1,4 +1,4 @@
-# Hi there, I'm Hilda Kiptoo 👋
+# Nice to meet you, I'm Hilda Kiptoo 👋
 
 **Senior Data Analyst | MSc Cybersecurity & Digital Forensics Candidate**
 
